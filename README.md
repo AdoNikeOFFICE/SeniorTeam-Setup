@@ -1,0 +1,2 @@
+# SeniorTeam-Setup
+ᴀᴘᴘʟɪᴄᴀᴛɪᴏɴ
